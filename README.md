@@ -12,9 +12,7 @@ Zélie est une enfant non girly aux multiples activités.
 
 ## Personnage masculin
 
-### Ma poupée
-
-[Lien](https://www.babelio.com/livres/Heurtier-Ma-poupee/1364158)
+[Ma poupée](https://www.babelio.com/livres/Heurtier-Ma-poupee/1364158)
 
 Autrices : Annelise Heurtier
 
